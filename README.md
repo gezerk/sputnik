@@ -8,3 +8,6 @@ to come to the aid of their country.
 
 Hello, anybody there?
 
+
+VOICE: The truth is out there.
+
